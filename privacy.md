@@ -58,7 +58,7 @@ These Services are eligible for children also with Ad content rating (G) (Genera
 
 I may update our Privacy Policy from time to time. Thus, you are advised to review this page periodically for any changes. I will notify you of any changes by posting the new Privacy Policy on this page.
 
-This policy is effective as of 2022-02-21
+This policy is effective as of 2022-05-13
 
 **Contact Us**
 
